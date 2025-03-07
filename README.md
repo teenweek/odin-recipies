@@ -1,2 +1,2 @@
 # odin-recipies
-we makin crack
+we coidng html site!! so fun
